@@ -1,1 +1,1 @@
-Ashmith is s good boy
+Ashmith is a good boy
